@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @paultweedy77
 - 👀 I’m interested in cheese
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning cheese
 - 💞️ I’m looking to collaborate on cheese
 - 📫 How to reach me - cheesenet
 
